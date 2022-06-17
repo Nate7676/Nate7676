@@ -1,4 +1,15 @@
-### Hi there 👋
+### Hi there, I'm Nate
+
+#I'm a student and work on Freelance 
+
+#I’m currently learning Coding , English & More 🙏
+
+![Theeraphat Chueanokkhum](https://photos.app.goo.gl/jnk1fr2NJbP7xjc16)
+
+#additional channels
+👉 [YouTube](https://youtube.com/c/Nate7676)<br>
+👉 [Facebook](https://www.facebook.com/profile.php?id=100081668041472)<br>
+
 
 <!--
 **Nate7676/Nate7676** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
